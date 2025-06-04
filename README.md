@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tnishx
+- 👋 Hi, also fuckk you 
 
 <!---
 tnishx/tnishx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
